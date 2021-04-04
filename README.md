@@ -1,1 +1,0 @@
-# football-news.github.io
